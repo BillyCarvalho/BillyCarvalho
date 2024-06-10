@@ -5,7 +5,7 @@
 
 - 💬 Me pergunte sobre **SQL,POWER BI,PYTHON,JAVA,EXCEL.**
 
-- 📝 Você me encontra através do e-mail **billycarvvalho171@gmail.com**
+- 📝 Você me encontra através do e-mail **billyfcarvalho@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
